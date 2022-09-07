@@ -1,3 +1,5 @@
+https://www.udemy.com/course/build-your-blockchain-az/
+
 *** AS SEEN ON KICKSTARTER ***
 
 Learn key Blockchain concepts, intuition and practical training to get you quickly up to speed with all things Crypto and Blockchain related. Covering:
